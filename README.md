@@ -1,2 +1,2 @@
 # projetoDiegoLucas
-O meu parceiro é a Ana Clara Vasconcelos.
+A minha parceira é a Ana Clara Vasconcelos.
