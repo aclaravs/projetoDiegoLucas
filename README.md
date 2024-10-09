@@ -1,2 +1,2 @@
 # projetoDiegoLucas
-O meu parceiro é o Victor Hugo.
+O meu parceiro é a Ana Clara Vasconcelos.
